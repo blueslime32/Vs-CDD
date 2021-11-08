@@ -20,7 +20,9 @@
  * Discord - Discord
  * F-777 - Hit 'Em Like This!
  * rick ast
- * 
+ * chinga tu madre tetrabitgaming deja de sacar cosas de tcrf y búscalas tu huevon de mierda
+ * esc te amo
+ * no mejor no se escucha gay
  * (aqui van los fondos que se usaran en temper)
  * Mis amigos - a quienes el mod va dirigido y mi mayor fuente de inspiración
  * A ti - por jugar VS. CDD                 (se escucha bien cursi y cliché pero es cierto)
